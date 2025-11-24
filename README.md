@@ -1,7 +1,7 @@
 ## Hi, I am Arpita 👋:
  
  📫 Reach me -> https://www.linkedin.com/in/arpita-roy-047385285/<br> 
- 📄 Know about my experiences https://drive.google.com/file/d/1fq-4gVWtXhilyCgp70L_ldJnQxaJcBb8/view?usp=sharing<br>
+ 📄 Know about my experiences https://drive.google.com/file/d/1tnzLrRq8eO8JhDuYGPNAMyaVjauBKG66/view?usp=drive_link<br>
   
 
 ## 🌐 Socials:
